@@ -66,6 +66,7 @@ Crystal Qian (12:30 pm)
 Jennifer Zhang (12:30 pm)  
 Lucy Zhao (12:30 pm)  
 
+
 #### Team 8: Library 140
 Yiduan Ma (12:30 pm)  
 Di Zhu (12:30 pm)   
@@ -75,8 +76,9 @@ Chia-Lin Tsai (12:30 pm)
 
 #### Team 9: Star Women
 Yixin Xu (3:30pm)  
-Qing Chen (3:30pm)  
+Qing Chen (3:30pm) 
 Fanru Zhao (3:30pm)   
 Yijing Xiao (3:30pm)   
 Yuexiang Luo (3:30pm)   
 Amanda Njauw (3:30pm)
+
