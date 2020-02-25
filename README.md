@@ -59,3 +59,9 @@ Josh Park (12:30pm)
 Junghwan Park (12:30pm)   
 Krystal Xu (12:30pm)  
 
+#### Team 7: Loading 100%
+Qiuyi Liu (12:30 pm)  
+Emily Li (12:30 pm)  
+Crystal Qian (12:30 pm)  
+Jennifer Zhang (12:30 pm)  
+Lucy Zhao (12:30 pm)  
