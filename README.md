@@ -74,9 +74,9 @@ Yihang Wang (12:30 pm)
 Siyu Liu (12:30 pm)   
 Chia-Lin Tsai (12:30 pm)   
 
-#### Team 9: Star Women
+#### Team 9: Error 403
 Yixin Xu (3:30pm)  
-Qing Chen (3:30pm) 
+Qing Chen (3:30pm)  
 Fanru Zhao (3:30pm)   
 Yijing Xiao (3:30pm)   
 Yuexiang Luo (3:30pm)   
