@@ -82,7 +82,13 @@ Yijing Xiao (3:30pm)
 Yuexiang Luo (3:30pm)   
 Amanda Njauw (3:30pm)
 
-#### Team 10: FBI Most Wanted
+#### Team 10: 50 Shades of Slay
+Moses Lee (3:30 pm)   
+Zicong Mo (12:30 pm)  
+Haley Rao (12:30 pm)  
+Sooyeon Song (12:30 pm) 
+
+#### Team 11: FBI Most Wanted
 Leon Huaming Ng (12:30pm)   
 Lium Lin (3:30pm)   
 Ziling Chen (3:30pm)    
