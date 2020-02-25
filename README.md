@@ -94,3 +94,11 @@ Lium Lin (3:30pm)
 Ziling Chen (3:30pm)    
 Jiarui Zhou (3:30pm)  
 Hope Safranek (3:30pm)
+
+#### Team 12: I Just Took A DNA Test
+Yixiang Zhang (12:30pm)
+Matt Matsuo (12:30pm)
+Zhaoying Chen (12:30pm)
+Gregory Chang (3:30pm)
+Inyong Lee (3:30pm)
+Lyu Zhang (3:30pm)
